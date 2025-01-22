@@ -36,6 +36,11 @@ To address the high rate of employee attrition and its negative impact on produc
 
 
 
+![image](https://github.com/user-attachments/assets/d4c82448-b99d-4ef7-84e1-20ec435a99be)
+
+
+
+
 
 
 
